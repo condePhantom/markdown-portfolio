@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+- :sob: :ok_hand: 
+- Dorime :pray:	
+- :muscle:
